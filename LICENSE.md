@@ -1,4 +1,4 @@
-
+Obsidian for macOS smart Workflow: tags & AI assistant offers the most advanced Obsidian for macOS workflow, with tags and AI assistant. Ideal for professionals.
 
 
 
